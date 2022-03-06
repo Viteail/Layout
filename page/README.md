@@ -1,0 +1,1 @@
+A entire page.
